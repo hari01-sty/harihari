@@ -1,0 +1,2 @@
+# harihari
+Belajar trader
